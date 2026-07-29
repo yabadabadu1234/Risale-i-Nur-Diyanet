@@ -37,7 +37,7 @@ Mesela, hamele-i arş ve yer ve göklerin melaike-i müekkelleri ve sair bir kı
 
 gibi âyetlerle tasrih ediyor ki: Mevcudatın en büyüğü ve küllîsi dahi kendi külliyetine göre ve azametine münasip bir tarzda tesbihat ettiğini gösteriyor ve öyle de görünüyor.
 
-Evet, bir bahr-i müsebbih olan şu semavatın kelimat-ı tesbihiyesi; güneşler, aylar, yıldızlar olduğu gibi bir tayr-ı müsebbih ve hâmid olan şu zeminin dahi elfaz-ı tahmidiyesi; hayvanlar, nebatlar ve ağaçlardır. Demek, her bir ağacın her bir yıldızın cüz’î birer tesbihatı olduğu gibi zeminin de ve zeminin her bir kıtasının da ve her bir dağ ve derenin de ve berr ve bahrinin de ve göklerin her bir feleğinin de ve her bir burcunun da birer tesbih-i küllîsi vardır. Şu binler başları olan zeminin her başında yüz binler lisanlar bulunan ve her lisanda yüz bin tarzda tesbihat çiçeklerini, tahmidat meyvelerini, âlem-i misalde tercümanlık edip gösterecek ve âlem-i ervahta temsil edip ilan edecek, ona göre elbette bir melek-i müekkeli vardır.
+Evet, bir bahr-i müsebbih olan şu semavatın kelimat-ı tesbihiyesi; güneşler, aylar, yıldızlar olduğu gibi bir tayr-ı müsebbih ve hâmid olan şu zeminin dahi elfaz-ı tahmidiyesi; hayvanlar, nebatlar ve ağaçlardır. Demek ki her bir ağacın her bir yıldızın cüz’î birer tesbihatı olduğu gibi zeminin de ve zeminin her bir kıtasının da ve her bir dağ ve derenin de ve berr ve bahrinin de ve göklerin her bir feleğinin de ve her bir burcunun da birer tesbih-i küllîsi vardır. Şu binler başları olan zeminin her başında yüz binler lisanlar bulunan ve her lisanda yüz bin tarzda tesbihat çiçeklerini, tahmidat meyvelerini, âlem-i misalde tercümanlık edip gösterecek ve âlem-i ervahta temsil edip ilan edecek, ona göre elbette bir melek-i müekkeli vardır.
 
 Evet, müteaddid eşya bir cemaat şekline girse bir şahs-ı manevîsi olacaktır. Eğer o cemiyet, imtizaç edip ittihat şeklini alsa onu temsil edecek bir şahs-ı manevîsi, bir nevi ruh-u manevîsi ve vazife-i tesbihiyesini görecek bir melek-i müekkeli olacaktır.
 
@@ -57,7 +57,7 @@ Güneş, ulviyetiyle beraber bütün şeffaf ve parlak şeylere nihayet derecede
 
 Hem o güneş, her şeffaf zerreye, hattâ ziyası nereye girmiş ise orada hazır ve nâzır gibi olduğu, o zerrenin kabiliyet ve rengine göre güneşin aksi ve bir nevi timsali görünmesiyle anlaşılır.
 
-Hem güneşin azamet-i nuraniyeti derecesinde ihatası, nüfuzu ziyadeleşir. Nuraniyet azametindendir ki en küçük ufak şeyler, ondan gizlenip kaçamazlar. Demek azamet-i kibriyası, cüz’î ve ufak şeyleri, nuraniyet sırrıyla harice atmak değil; bilakis daire-i ihatasına alıyor.
+Hem güneşin azamet-i nuraniyeti derecesinde ihatası, nüfuzu ziyadeleşir. Nuraniyet azametindendir ki en küçük ufak şeyler, ondan gizlenip kaçamazlar. Demek ki azamet-i kibriyası, cüz’î ve ufak şeyleri, nuraniyet sırrıyla harice atmak değil; bilakis daire-i ihatasına alıyor.
 
 Hem güneşi, mazhar olduğu cilvelerde ve vazifelerde farz-ı muhal olarak fâil-i muhtar farz etsek o derece suhulet ve sürat ve vüs’at içinde, zerreden katreden deniz yüzünden seyyarata kadar izn-i İlahî ile öyle işliyor ki şu tasarrufat-ı azîmeyi yalnız bir mahz-ı emir ile yapar, tahayyül edilebilir. Zerre ile seyyare, emrine karşı müsavidirler. Deniz yüzüne verdiği feyzi, zerreye de kabiliyetine göre kemal-i intizam ile verir.
 

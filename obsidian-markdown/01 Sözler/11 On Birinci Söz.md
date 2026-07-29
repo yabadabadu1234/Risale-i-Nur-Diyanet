@@ -22,7 +22,7 @@ Her cemal ve kemal sahibi, kendi cemal ve kemalini görmek ve göstermek istemes
 
 Bu hikmete binaen, cesîm ve geniş ve muhteşem bir kasrı yapmaya başladı. Şahane bir surette dairelere, menzillere taksim ederek hazinelerinin türlü türlü murassaatıyla süslendirip kendi dest-i sanatının en latîf, en güzel eserleriyle ziynetlendirip fünun-u hikmetinin en incelikleriyle tanzim edip düzelterek ve ulûmunun âsâr-ı mu’cizekâraneleriyle donatarak tekmil ettikten sonra, her bir taam ve nimetlerinin bütün çeşitlerinden en lezizlerini câmi’ sofralar, o sarayda kurdu. Her bir taifeye lâyık bir sofra tayin etti. Öyle sehavetkârane, sanat-perverane bir ziyafet-i âmme ihzar etti ki güya her bir sofra, yüz sanayi-i latîfenin eserleriyle vücud bulmuş gibi kıymetli hadsiz nimetleri serdi.
 
-Sonra aktar-ı memleketindeki ahali ve raiyetini, seyre ve tenezzühe ve ziyafete davet etti. Sonra bir yaver-i ekremine sarayın hikmetlerini ve müştemilatının manalarını bildirerek onu üstad ve tarif edici tayin etti. Tâ ki sarayın sâni’ini, sarayın müştemilatıyla ahaliye tarif etsin ve sarayın nakışlarının rumuzlarını bildirip, içindeki sanatlarının işaretlerini öğretip, derûnundaki manzum murassalar ve mevzun nukuş nedir? Ve ne vecihle saray sahibinin kemalâtına ve hünerlerine delâlet ettiklerini, o saraya girenlere tarif etsin ve girmenin âdabını ve seyrin merasimini bildirip, o görünmeyen sultana karşı marziyatı dairesinde teşrifat merasimini tarif etsin.
+Sonra aktar-ı memleketindeki ahali ve raiyetini, seyre ve tenezzühe ve ziyafete davet etti. Sonra bir yaver-i ekremine sarayın hikmetlerini ve müştemilatının manalarını bildirerek onu üstad ve tarif edici tayin etti. Tâ ki sarayın sâni’ini, sarayın müştemilatıyla ahaliye tarif etsin ve sarayın nakışlarının rumuzlarını bildirip, içindeki sanatlarının işaretlerini öğretip, derûnundaki manzum murassalar ve mevzun nukuş nedir ve ne vecihle saray sahibinin kemalâtına ve hünerlerine delâlet ettiklerini, o saraya girenlere tarif etsin ve girmenin âdabını ve seyrin merasimini bildirip, o görünmeyen sultana karşı marziyatı dairesinde teşrifat merasimini tarif etsin.
 
 İşte o muarrif üstadın her bir dairede birer avenesi bulunuyor. Kendisi en büyük dairede şakirdleri içinde durmuş, bütün seyircilere şöyle bir tebligatta bulunuyor. Diyor ki:
 
@@ -30,7 +30,7 @@ Sonra aktar-ı memleketindeki ahali ve raiyetini, seyre ve tenezzühe ve ziyafet
 
 Daha bunun gibi ona ve o makama münasip sözleri seyircilere söyledi. Sonra, giren ahali iki güruha ayrıldılar:
 
-**Birinci güruhu**, kendini tanımış ve aklı başında ve kalbi yerinde oldukları için o sarayın içindeki acayiplere baktıkları zaman dediler: “Bunda büyük bir iş var.” Hem anladılar ki beyhude değil, âdi bir oyuncak değil. Onun için merak ettiler. “Acaba tılsımı nedir, içinde ne var?” deyip düşünürken, birden o muarrif üstadın beyan ettiği nutkunu işittiler. Anladılar ki bütün esrarın anahtarları ondadır. Ona müteveccihen gittiler ve dediler: “Esselâmü aleyke yâ eyyühe’l-üstad! Hakkan, şöyle bir muhteşem sarayın, senin gibi sadık ve müdakkik bir muarrifi lâzımdır. Seyyidimiz sana ne bildirmişse lütfen bize bildiriniz.”
+**Birinci güruh**, kendini tanımış ve aklı başında ve kalbi yerinde oldukları için o sarayın içindeki acayiplere baktıkları zaman dediler: “Bunda büyük bir iş var.” Hem anladılar ki beyhude değil, âdi bir oyuncak değil. Onun için merak ettiler. “Acaba tılsımı nedir, içinde ne var?” deyip düşünürken, birden o muarrif üstadın beyan ettiği nutkunu işittiler. Anladılar ki bütün esrarın anahtarları ondadır. Ona müteveccihen gittiler ve dediler: “Esselâmü aleyke yâ eyyühe’l-üstad! Hakkan, şöyle bir muhteşem sarayın, senin gibi sadık ve müdakkik bir muarrifi lâzımdır. Seyyidimiz sana ne bildirmişse lütfen bize bildiriniz.”
 
 Üstad ise evvel zikri geçen nutukları onlara dedi. Bunlar güzelce dinlediler, iyice kabul edip tam istifade ettiler. Padişahın marziyatı dairesinde amel ettiler. Onların şu edepli muamele ve vaziyetleri o padişahın hoşuna geldiğinden onları has ve yüksek ve tavsif edilmez diğer bir saraya davet etti, ihsan etti. Hem öyle bir cevvad-ı meliğe lâyık ve öyle mutî ahaliye şayeste ve öyle edepli misafirlere münasip ve öyle yüksek bir kasra şâyan bir surette ikram etti, daimî onları saadetlendirdi.
 
@@ -40,7 +40,7 @@ Ey benimle bu hikâyeyi dinleyen arkadaş! Elbette anladın ki o hâkim-i zîşa
 
 **Birisi:** Şu gördüğümüz ve nutkunu işittiğimiz üstadın vücududur. Çünkü o bulunmazsa bütün maksatlar beyhude olur. Çünkü anlaşılmaz bir kitap, muallimsiz olsa manasız bir kâğıttan ibaret kalır.
 
-**İkincisi:** Ahali, o üstadın sözünü kabul edip dinlemesidir. Demek, vücud-u üstad vücud-u kasrın dâîsidir ve ahalinin istimaı, kasrın bekasına sebeptir. Öyle ise denilebilir ki şu üstad olmasaydı, o melik-i zîşan şu kasrı bina etmezdi. Hem yine denilebilir ki o üstadın talimatını ahali dinlemedikleri vakit, elbette o kasır tebdil ve tahvil edilecek.
+**İkincisi:** Ahali, o üstadın sözünü kabul edip dinlemesidir. Demek ki vücud-u üstad vücud-u kasrın dâîsidir ve ahalinin istimaı, kasrın bekasına sebeptir. Öyle ise denilebilir ki şu üstad olmasaydı, o melik-i zîşan şu kasrı bina etmezdi. Hem yine denilebilir ki o üstadın talimatını ahali dinlemedikleri vakit, elbette o kasır tebdil ve tahvil edilecek.
 
 Ey arkadaş! Hikâye burada bitti. Eğer şu temsilin sırrını anladınsa bak, hakikatin yüzünü de gör:
 
@@ -65,7 +65,7 @@ Evet, **namazın mütenevvi ezkâr ve harekâtıyla işaret ettiği vezaifi, mak
 - **Hâmisen:** Mistar-ı kader üstünde kalem-i kudretiyle yazılan mektubat-ı Rabbaniyeyi mütalaa makamında, tefekkür ve istihsan vazifesine başladılar.
 - **Sâdisen:** Eşyanın yaratılışında ve masnuatın sanatındaki latîf incelik ve nâzenin güzellikleri temaşa ile tenzih makamında Fâtır-ı Zülcelal, Sâni’-i Zülcemal’lerine muhabbet ve iştiyak vazifesine girdiler.
 
-Demek, kâinata ve âsâra bakıp gaibane muamele-i ubudiyetle mezkûr makamatta mezkûr vezaifi eda ettikten sonra Sâni’-i Hakîm’in dahi muamelesine ve ef’aline bakmak derecesine çıktılar ki hazırane bir muamele suretinde evvela Hâlık-ı Zülcelal’in kendi sanatının mu’cizeleriyle kendini zîşuura tanıttırmasına karşı hayret içinde bir marifet ile mukabele ederek <span class="arabic" dir="rtl">سُبْحَانَكَ مَا عَرَفْنَاكَ حَقَّ مَعْرِفَتِكَ</span> dediler. “Senin tarif edicilerin bütün masnuatındaki mu’cizelerindir.”
+Demek ki kâinata ve âsâra bakıp gaibane muamele-i ubudiyetle mezkûr makamatta mezkûr vezaifi eda ettikten sonra Sâni’-i Hakîm’in dahi muamelesine ve ef’aline bakmak derecesine çıktılar ki hazırane bir muamele suretinde evvela Hâlık-ı Zülcelal’in kendi sanatının mu’cizeleriyle kendini zîşuura tanıttırmasına karşı hayret içinde bir marifet ile mukabele ederek <span class="arabic" dir="rtl">سُبْحَانَكَ مَا عَرَفْنَاكَ حَقَّ مَعْرِفَتِكَ</span> dediler. “Senin tarif edicilerin bütün masnuatındaki mu’cizelerindir.”
 
 Sonra o Rahman’ın kendi rahmetinin güzel meyveleriyle kendini sevdirmesine karşı, muhabbet ve aşk ile mukabele edip <span class="arabic" dir="rtl">اِيَّاكَ نَعْبُدُ وَاِيَّاكَ نَسْتَعٖينُ</span> dediler.
 

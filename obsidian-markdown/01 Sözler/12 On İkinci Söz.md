@@ -67,7 +67,7 @@ Kur’an’ın bütün kelimat-ı İlahiye içinde cihet-i ulviyetini ve bütün
 
 **İkinci Temsil:** Bir adam, elinde bir âyineyi güneşe karşı tutar. O âyine miktarınca bir ışık ve yedi rengi câmi’ bir ziya alır; o nisbetle güneşle münasebettar olur, sohbet eder. Ve o ışıklı âyineyi, karanlıklı hanesine veya dam altındaki bağına tevcih etse güneşin kıymeti nisbetinde değil, belki o âyinenin kabiliyeti miktarınca istifade edebilir.
 
-  Diğeri ise hanesinden veya bağının damından geniş pencereler açar. Gökteki güneşe karşı yollar yapar. Hakiki güneşin daimî ziyasıyla sohbet eder, konuşur ve lisan-ı hal ile böyle minnettarane bir sohbet eder. Der: “Ey yeryüzünü ışığıyla yaldızlayan ve bütün çiçeklerin yüzünü güldüren dünya güzeli ve gök nazdarı olan nâzenin güneş! Onlar gibi benim haneciğimi ve bahçeciğimi ısındırdın, ışıklandırdın.” Halbuki âyine sahibi böyle diyemez. O kayıt altındaki güneşin aksi ise âsârı mahduddur. O kayda göredir.
+  Diğeri ise hanesinden veya bağının damından geniş pencereler açar. Gökteki güneşe karşı yollar yapar. Hakiki güneşin daimî ziyasıyla sohbet eder, konuşur ve lisan-ı hal ile böyle minnettarane bir sohbet eder. Der: “Ey yeryüzünü ışığıyla yaldızlayan ve bütün çiçeklerin yüzünü güldüren dünya güzeli ve gök nazdarı olan nâzenin güneş! Onlar gibi benim haneciğimi ve bahçeciğimi ısındırdın, ışıklandırdın.” Halbuki âyine sahibi böyle diyemez. O kayıt altındaki güneşin aksinin ise âsârı mahduddur. O kayda göredir.
 
 İşte bu iki temsilin dürbünüyle Kur’an’a bak. Tâ ki i’cazını göresin ve kudsiyetini anlayasın.
 
